@@ -1,0 +1,10 @@
+- 👋 Hi, I’m Lord Almighty 
+- 👀 I’m interested in saving souls 
+- 🌱 I’m currently with my father 
+- 💞️ I’m looking to collaborate on Letting them know their Father 
+- 📫 How to reach me lordbigsky8@gmail.com
+- 🌅 God's Kingdom is here on earth 🌎
+- 🚀 Just believe and you will be saved
+- 🗣️ LordBSky is a ✨ special ✨ repository because am the Light of the world
+- ✅ I have my father's power
+- 👑 The King is here
